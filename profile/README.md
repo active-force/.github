@@ -42,10 +42,10 @@ Our communication equipment division offers:
 
 For inquiries about our services or products, please reach out to us.
 
-📧 **Email**: [Contact Email]  
-📞 **Phone**: [Contact Number]  
-🌐 **Website**: [Website URL]  
-📍 **Location**: [Business Address]
+📧 **Email**: active.mahadi2015@gmail.com  
+📞 **Phone**: +8801630971218  
+🌐 **Website**: https://activesisbd.com
+📍 **Location**: Active Force (Active Securities and IT Solutions) - House # 5/4, Block # 1, Monipuri Para, Sangsad Avenue, Tejgaon, Dhaka-1215, Dhaka, Bangladesh.
 
 ---
 
